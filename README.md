@@ -1,2 +1,3 @@
 # memory
-[Nisanimiza Davetlisiniz](ahmetkasimerbay.net)
+[Nisanimiza Davetlisiniz](www.ahmetkasimerbay.net)
+
