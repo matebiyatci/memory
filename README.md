@@ -1,3 +1,5 @@
 # memory
-[Nisanimiza Davetlisiniz](www.ahmetkasimerbay.net)
+
+
+[Nisanimiza Davetlisiniz](https://www.ahmetkasimerbay.net)
 
